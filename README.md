@@ -11,3 +11,7 @@
 
 
 
+<H1>KAYNAKLARIM</H1>
+
+
+<p>1. https://www.youtube.com/watch?v=WASUazl54Kg&list=PLenbnc-HQPY_F2K5mc6eV79GzaE4eHrTS  </p> 
